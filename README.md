@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is ajadafa222#3586
+
 # Upgrade events detector
 
 ## Description
